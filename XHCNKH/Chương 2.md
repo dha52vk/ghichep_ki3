@@ -23,4 +23,21 @@
 - Trước 1986, giai cấp công nhân việt nam phát triển chậm, số lượng ít, trình độ nghề nghiệp còn thấp, còn mang nhiều tàn dư của tâm lý và tập quán tiểu nông, song đã sớm giác ngộ mục tiêu lý tưởng cách mạng, nhanh chóng trưởng thành về cả ý thức chính trị của giai cấp, vươn lên đảm đương sứ mệnh lãnh đạo cách mạng việt nam
 - Giai cấp công nhân việt nam sinh ra trong lòng một dân tộc có truyền thống đấu tranh bất khuất chống ngoại xâm
 - Giai cấp công nhân việt nam gắn bó mật thiết với các tầng lớp nhân dân, tri thức
-- Hiện nay, giai cấp công nhân Việt Nam tăng nhanh về số lượng và chất lượng
+- Hiện nay, giai cấp công nhân Việt Nam tăng nhanh về số lượng và chất lượng, là giai cấp đi đầu trong sự nghiệp đẩy mạng công nghiệp hóa, hiện đại hóa, gắn với phát triển tri thức, bảo vệ tài nguyên và môi trường
+## 2. Sứ mệnh lịch sử của giai cấp công nhân Việt Nam
+- Về kinh tế, phát huy vai trò và trách nhiệm của lực lượng đi đầu trong sự nghiệp đẩy mạnh công nghiệp hóa hiện đại hóa đất nước
+- Về chính trị - xã hội có nhiệm vụ giữ vững và tăng cường sự lãnh dạo của đảng cộng sản việt nam, giữ vững bản chất giai cấp công nhân của Đảng
+- Về văn hóa tư tưởng, xây dựng con người mới xhcn, giáo dục đạo đức cách mạng, rèn luyện lối sống, tác phong công nghiệp, văn minh, hiện đại, xây dựng hệ giá trị văn hóa và con người việt nam, hoàn thiện nhân cách, bảo vệ sự trong sáng của chủ nghĩa mác lê nin và tư tưởng Hồ Chí Minh
+## 3. Phương hướng và một số giải pháp chủ yếu để xây dựng giai cấp công nhân việt nam hiện nay
+### a) Phương hướng để xây dựng giai cấp công nhân Việt Nam hiện nay
+- Xây dựng giai cấp công nhân có giác ngộ giai cấp có ý thức công dân yêu nước, yêu chủ nghĩa xã hội, nhạy bén và vững vàng trước những diễn biến phức tạp củ tình hình thế giới và những biến đổi của tình hình trong nước
+- Xây dựng giai cấp công nhân có tinh thần đoàn kết dân tộc, đoàn kết, hợp tác quốc tế
+- Thực hiện sứ mệnh lịch sử của giai cấp lãnh đạo cách mạng thông qua đội tiên phong là đảng cộng sản Việt Nam
+- Bảo đảm việc làm, nhà ở, các công trình phúc lợi phục vụ cho công nhân
+### b) Một số giải pháp chủ yếu xây dựng giai cấp công nhân Việt Nam hiện nay
+- Nâng cao nhận thức, kiên định quan điểm giai cấp công nhân là giai cấp lãnh đạo cách mạng thông qua đội tiền phong là Đảng Cộng sản Việt Nam.
+- Xây dựng giai cấp công nhân lớn mạnh gắn với xây dựng và phát huy sức mạnh của liên minh giai cấp công - nông - trí thức - doanh nhân đặt dưới sự lãnh đạo của Đảng Cộng sản
+- Thực hiện chiến lược xây dựng giai cấp công nhân lớn mạnh, gắn kết chặt chẽ với chiến lược phát triển kinh tế - xã hội, công nghiệp hóa, hiện đại hóa đất nước và hội nhập quốc tế
+- Đào tạo, bồi dưỡng, nâng cao trình độ mọi mặt cho công nhân, không ngừng trí thức hóa giai cấp công nhân
+- Xây dựng giai cấp công nhân lớn mạnh gắn liên với xây dựng Đảng trong sạch, vững mạnh về chính trị, tư tưởng, tổ chức và đạo đức, xây dựng tổ chức Công đoàn, Đoàn Thanh niên và các tổ chức chính trị - xã hội khác trong giai cấp công nhân
+- 
