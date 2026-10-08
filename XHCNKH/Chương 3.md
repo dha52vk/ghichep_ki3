@@ -58,4 +58,10 @@
 - Cuộc đấu tranh của nhân dân các nước vì hòa bình, độc lập dân tộc, dân chủ, phát triển và tiến bộ xã hội dù gặp nhiều khó khăn, thách thức, song theo quy luạt tiến hóa của lịch sử, loài người nhất định sẽ tiến tới CNXH
 - Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa là sự lựa chọn duy nhất đúng, khoa học phản án hdudsng quy luật phát triển khách quan của cách mạng Việt Nam trong thời đại ngày nay
 	- Cương lĩnh năm 1930 của Đảng chỉ rõ: Sau khi hoàn thnahf cách mạng dân tộc, dân chủ nhân dân, sẽ tiến lenen chủ nhgiax ã hội. Đây là sự lựa chọn dứt khoát và ddusnsg đắn của Đảng, đáp ứng nguyện vọng thiết tha của dân tộc, nhân dân, phản ánh xu thế phát triển của thời đại, phù hợp với  đặc điểm khoa học, cách mạng và sáng tạo của chủ nghĩa mác lê nin
-- Đại hội IX của Đảng Cộng sản Việt Nam xác định: Con đường đi lên của nước ta là sự phát triển qusa độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa, tức là bỏ qua việc xác lập vị trí thống trị của quan hệ sản xuất và kiến trúc thượng tầng tư bản chủ nghĩa, nhưng tiếp thu, kế thừa những thành tựu mà nhân loại đã đạt được dưới chế độ ư bản chủ nghĩa, đặc biệt về khoa học và công nghệ, để phát triển nhanh lực lượng sản xuất, xây dựng nền kinh tế hiện đại
+- Đại hội IX của Đảng Cộng sản Việt Nam xác định: Con đường đi lên của nước ta là sự phát triển quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa, tức là bỏ qua việc xác lập vị trí thống trị của quan hệ sản xuất và kiến trúc thượng tầng tư bản chủ nghĩa, nhưng tiếp thu, kế thừa những thành tựu mà nhân loại đã đạt được dưới chế độ tư bản chủ nghĩa, đặc biệt về khoa học và công nghệ, để phát triển nhanh lực lượng sản xuất, xây dựng nền kinh tế hiện đại
+- Con đường đi lên CNXH bỏ qua chế độ TBCN ở Việt Nam:
+	- Là con đường cách mạng tất yếu khách quan, xây dựng đất nước trong thời kỳ quá độ lên chủ nghĩa xã hội ở nước ta
+	- Là bỏ qua việc xác lập vị trí thống trị của quan hệ sản xuất và kiến trúc thượng tầng tư bản chủ nghĩa
+	- Tiếp thu, kế thừa những thành tựu khoa học và công nghệ, quản lý của chủ nghĩa tư bản để xây dựng nền kinh tế hiện đại, phát triển nhanh lực lượng sản xuất
+	- Là sự nghiệp khó khăn, phức tạp, lâu dài với nhiều chặng đường, nhiều hình thức, đòi hỏi phải có quyết tâm chính trị cao và khát vọng lớn của toàn bộ đảng, toàn dân
+	- 
